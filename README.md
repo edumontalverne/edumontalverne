@@ -4,3 +4,5 @@ But my professional journey began long before the world of Info Tech. I've spent
 In my last job, I was the brewery's Beer Production Supervisor, responsible for brewing, bottling and ensuring the quality of beer production.
 
 Then I decided to change direction when I realized that the world is evolving through technology and I wanted to be a part of it.
+
+https://www.linkedin.com/in/eduardomontalvernelopes/
